@@ -1,0 +1,1 @@
+# CopierMaschineClone8OUTS
